@@ -3,5 +3,5 @@
 1. I speak four languages: Russian, French, English, and Tatar
 2. I love to cook.
 3. I love clever jokes
-
+😊
 ![](/B6fSv.jpg)
